@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ElmonINC
+- 👋 Hi, I’m ELMON
 - 👀 I’m interested in fullsack web-development
 - 🌱 I’m currently learning the basics
-- 💞️ I’m looking to collaborate on on big projects in the future.
+- 💞️ I’m looking to collaborate on big projects in the future.
 - 📫 How to reach me; WhatsApp: +234 810 788 4134
 
 <!---
