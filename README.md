@@ -5,7 +5,7 @@ Hi, I'm Samuel Igwemon! I blend **graphic design**, **UI/UX**, and **full-stack 
 
 🌟 Let’s create seamless, innovative solutions together!
   
-📫 Connect: LinkedIn: ( https://www.linkedin.com/in/Samuel-igwemon |  Dribbble: dribbble.com/ELMON_me | Email: mailto: igwesmsn@gmail.com
+📫 Connect: LinkedIn: ( https://www.linkedin.com/in/Samuel-igwemon |  Dribbble: https://dribbble.com/ELMON_me | Email: mailto: igwesmsn@gmail.com
 
 
 ## 🌐 Socials:
